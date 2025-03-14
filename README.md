@@ -2,6 +2,7 @@
 I got mad opps on this fucking horse game. Bewarned.
 
 I'm always down to talk to new people but I have a history on this game with a few individuals that have severely fucked me over.
+
 DNI specifics:
 Anyone associated with Wrecks/Rex/Thevic. Idgaf, I don't fw proshippers.
 BWH members . Former members are on thin fuckin ice tho.
